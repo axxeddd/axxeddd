@@ -1,10 +1,7 @@
 ＊ ﹡ ＊＊ ﹡ ＊＊ ﹡ ＊＊ ﹡ ＊
 
-✦ @axxeddd ✦
 
-
-✩ currrenty learning C# ✩ 
-
+![Uploading boothill-hsr.gif…]()
 
 
 
