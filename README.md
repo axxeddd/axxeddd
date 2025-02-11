@@ -1,8 +1,6 @@
 ＊ ﹡ ＊＊ ﹡ ＊＊ ﹡ ＊＊ ﹡ ＊
 
 
-![Uploading boothill-hsr.gif…]()
-
 
 
 
